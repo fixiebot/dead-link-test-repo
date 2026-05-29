@@ -1,1 +1,1 @@
-[Test](http://closedsite.com/test123
+[Test](http://closedsite.com/test123)
