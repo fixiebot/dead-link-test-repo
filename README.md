@@ -1,1 +1,1 @@
-[Test](http://closedsite123asas.com/test123)
+[Test](http://yews.news)
